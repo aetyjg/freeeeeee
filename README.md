@@ -1,2 +1,2 @@
 # Brunys33-Blooket-hacks
-Alright blooket hacks
+⚠THIS IS A REUPLOAD OF THE ORIGANAL BEST BLOOKET HACKS⚠
